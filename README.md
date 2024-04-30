@@ -1,16 +1,16 @@
-### Hi there 👋
+### Entre ai, fique a vontade 👋
 
-<!--
-**lII1111/lII1111** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- Estudo Alura
 
-Here are some ideas to get you started:
+- Sou da rede pública
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Estou concluindo todos os cursos que aparecem
+
+### Não gosto de contatos 🥇
+
+![](https://media1.tenor.com/m/f0Ewk0fr9U8AAAAC/neutral-so-funny-i-forgot-to-laugh.gif)
+
+
+
+
+
